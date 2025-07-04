@@ -1,5 +1,6 @@
 
 Let that that does not matter truly slide!
 One love no worries.
-the goal deffinently exist
-focus commitment and shear fucken will
+The goal deffinently exist.
+Focus commitment and shear fucken will.
+If theres a will theres a way.
